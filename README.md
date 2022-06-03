@@ -6,4 +6,4 @@ Content creator, Student, Light Mode Enjoyer.
 - ⚡ Fun fact: I use Light Mode on Github and my Code Editor.
 
 Information about how to contact me is in https://nluziaf.github.io/
-Discord : Luziaf#9464, I do not accept random friend requests.
+\nDiscord : Luziaf#9464, I do not accept random friend requests.
